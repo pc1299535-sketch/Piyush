@@ -2,7 +2,7 @@
 
 ### 💻 CSE Student | 🚀 Developer | 🤖 AI/ML Explorer
 
-> *"Building today, learning every day, and preparing for tomorrow."* ⚡
+> *"Building today, learning every day, and preparing for tomorrow."* ⚡ 
 
 
 
